@@ -30,5 +30,5 @@
 # [tekkitomathi](https://cdn.discordapp.com/attachments/887071709553917975/1212233220217765940/tekkitomathi.osk?ex=65f11729&is=65dea229&hm=aabeb36e27cf27eae4db52a7e0b07a4493c4a98502bef077542f1d05bae7894d&)
 ![screenshot381](https://github.com/Scramzi/skins/assets/107284378/c13eb5b1-9cd9-445d-91d1-15e005fef4a3)
 
-[TrailMix Aristia](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
+# [TrailMix Aristia](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
 ![imagen](https://github.com/Scramzi/skins/assets/107284378/ef82b912-4b10-44bf-840d-d2e214ac2805)
