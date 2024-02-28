@@ -32,3 +32,6 @@
 
 # [TrailMix Aristia](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
 ![imagen](https://github.com/Scramzi/skins/assets/107284378/ef82b912-4b10-44bf-840d-d2e214ac2805)
+
+# [Seoul_v11_Asta_Edit (enri discord)](https://cdn.discordapp.com/attachments/1173596051610017802/1206556401162526730/-_Seoul_v11_Asta_Edit.osk?ex=65eee536&is=65dc7036&hm=202d5dad449ddb552d09c645499424d1de0bd03a8a79b540870eebcd0d527a96&)
+![imagen](https://cdn.discordapp.com/attachments/1173596051610017802/1206556497971118080/image.png?ex=65eee54d&is=65dc704d&hm=50ce330bb6dc710de214d443a6e193c9f6108d84828218b0dfda54a3779d64e3&)
