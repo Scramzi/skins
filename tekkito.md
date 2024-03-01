@@ -12,7 +12,7 @@
 ![screenshot389](https://github.com/Scramzi/skins/assets/107284378/db56b916-baf8-41f7-8ccc-26dcd6245b4b)
 
 
-# [tekkitonowe](https://drive.google.com/file/d/1HHFt9RO-2EkU40srsdwdP789YI5MusjX/view?usp=drive_link)
+# [tekkitonowe](https://drive.google.com/file/d/14RT6Em9zFY6Q4bpvNNhKjdhkkv0CyRVa/view?usp=drive_link)
 ![screenshot390](https://github.com/Scramzi/skins/assets/107284378/c8ea6717-e83d-4c3f-a50e-ec66c4755e8c)
 
 
