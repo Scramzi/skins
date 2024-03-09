@@ -39,3 +39,6 @@
 # [vv](https://drive.google.com/file/d/1DndjvBtgbVVz10903vUcp-N9nUyqG0sx/view?usp=drive_link)
 ![screenshot382](https://github.com/Scramzi/skins/assets/107284378/d1113381-3906-45f2-8bf5-e70038213e2c)
 
+# [azerino](https://drive.google.com/file/d/1TkFUzma9cgzQfIb2gPD1K-v4cRR6wbUF/view?usp=drive_link)
+![screenshot398](https://github.com/Scramzi/skins/assets/107284378/0836c61b-d6fa-4c67-ac9d-be0aa5a52124)
+
