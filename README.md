@@ -45,6 +45,6 @@
 # [cover_monko](https://drive.google.com/file/d/1rZ3C_MyktF6t7Kp2WstKlouRRJQomgpK/view?usp=sharing)
 ![screenshot402](https://github.com/Scramzi/skins/assets/107284378/8b078080-842d-4d1a-87e8-74b958d49728)
 
-[marianczello](https://drive.google.com/file/d/1Wn6Im9hgtuS0SYSdAWhKXWRPkh0WkKhN/view?usp=sharing)
-#![screenshot404](https://github.com/Scramzi/skins/assets/107284378/54007f22-0f8e-4e1b-a920-563cf2810602)
+# [marianczello](https://drive.google.com/file/d/1Wn6Im9hgtuS0SYSdAWhKXWRPkh0WkKhN/view?usp=sharing)
+![screenshot404](https://github.com/Scramzi/skins/assets/107284378/54007f22-0f8e-4e1b-a920-563cf2810602)
 
