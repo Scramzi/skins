@@ -1,7 +1,8 @@
 # [Scramzi](https://osu.ppy.sh/users/6425836) skins, most skins are optimized.
+# check [tekkito](https://osu.ppy.sh/users/7075211) edits click [here](https://github.com/Scramzi/skins/blob/main/tekkito.md) 
   
-# [-- scramzi personal](https://www.mediafire.com/file/o0nhedu8ga023zs/--+scramzi.osk/file)
-![screenshot376](https://github.com/Scramzi/skins/assets/107284378/b4f300be-c948-47a2-98f5-07d79fedaa8b)
+# [-- scramzi personal](https://drive.google.com/file/d/1BeOOUTgom0bJVU0iQGOXKY8sJ_NmMUb0/view?usp=sharing)
+![screenshot407](https://github.com/Scramzi/skins/assets/107284378/cf30cd73-af6e-42ea-8da0-4612c5477604)
 
 # [azerinobombardedytowany](https://drive.google.com/file/d/1pbFiWv4VykasfrwAN6DE0ryVQ7-sz3px/view?usp=drive_link)
 ![screenshot374](https://github.com/Scramzi/skins/assets/107284378/ebe70bcc-d5ad-4984-bba3-302231454fe7)
