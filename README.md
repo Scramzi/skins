@@ -1,8 +1,9 @@
 # [Scramzi](https://osu.ppy.sh/users/6425836) skins, most skins are optimized.
 # check [tekkito](https://osu.ppy.sh/users/7075211) edits click [here](https://github.com/Scramzi/skins/blob/main/tekkito.md) 
   
-# [-- scramzi personal](https://drive.google.com/file/d/1BeOOUTgom0bJVU0iQGOXKY8sJ_NmMUb0/view?usp=sharing)
-![screenshot407](https://github.com/Scramzi/skins/assets/107284378/cf30cd73-af6e-42ea-8da0-4612c5477604)
+# [-- scramzi personal](https://drive.google.com/file/d/1VNVZJibb0y8En4Ph3TSC-cw_Oh08eeJU/view?usp=sharing)
+![screenshot409](https://github.com/Scramzi/skins/assets/107284378/a5a07c6e-7870-49e0-a03c-ec3cc948d40b)
+
 
 # [azerinobombardedytowany](https://drive.google.com/file/d/1pbFiWv4VykasfrwAN6DE0ryVQ7-sz3px/view?usp=drive_link)
 ![screenshot374](https://github.com/Scramzi/skins/assets/107284378/ebe70bcc-d5ad-4984-bba3-302231454fe7)
@@ -49,3 +50,5 @@
 # [marianczello](https://drive.google.com/file/d/1Wn6Im9hgtuS0SYSdAWhKXWRPkh0WkKhN/view?usp=sharing)
 ![screenshot404](https://github.com/Scramzi/skins/assets/107284378/54007f22-0f8e-4e1b-a920-563cf2810602)
 
+# [- ryanmaliszrohulkwoey](https://drive.google.com/file/d/1EzHFTf1nKJ2UE_2uml-p8AMfxsWlE3j8/view?usp=sharing)
+![screenshot410](https://github.com/Scramzi/skins/assets/107284378/4d8d42f8-f2d8-418b-8413-ff849541dcaf)
