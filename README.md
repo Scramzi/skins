@@ -51,3 +51,7 @@
 
 # [- ryanmaliszrohulkwoey](https://drive.google.com/file/d/1EzHFTf1nKJ2UE_2uml-p8AMfxsWlE3j8/view?usp=sharing)
 ![screenshot410](https://github.com/Scramzi/skins/assets/107284378/4d8d42f8-f2d8-418b-8413-ff849541dcaf)
+
+# [extremely optimized Aristia](https://drive.google.com/file/d/11X7CoZJmSgqEsdq4pkTIXwA5Glh5m7ss/view?usp=sharing)
+![screenshot433](https://github.com/user-attachments/assets/6f7a3af3-8e23-4bb3-b0a7-e26ece946c81)
+
