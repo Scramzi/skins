@@ -4,6 +4,9 @@
 # [- # scramzi personal](https://drive.google.com/file/d/1jXMZyjA0J4AR3L50OPxVUnEsb0TN8s58/view?usp=sharing)
 ![screenshot422](https://github.com/Scramzi/skins/assets/107284378/7b733538-13bf-47d1-ab7e-f3e2184b2a11)
 
+# [montevideo](https://drive.google.com/file/d/1Acb8p_wSjwxtKLJfrvyqHU4sn5bkDD7k/view?usp=sharing)
+![screenshot435](https://github.com/user-attachments/assets/622ca6b3-589a-40eb-a696-4a9154941aed)
+
 # [azerinobombardedytowany](https://drive.google.com/file/d/1pbFiWv4VykasfrwAN6DE0ryVQ7-sz3px/view?usp=drive_link)
 ![screenshot374](https://github.com/Scramzi/skins/assets/107284378/ebe70bcc-d5ad-4984-bba3-302231454fe7)
 
