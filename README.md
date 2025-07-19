@@ -1,14 +1,17 @@
 # [Scramzi](https://osu.ppy.sh/users/6425836) skins, most skins are optimized.
 # check [tekkito](https://osu.ppy.sh/users/7075211) edits click [here](https://github.com/Scramzi/skins/blob/main/tekkito.md) 
 
-# [superdedogeiga](https://scramzi.s-ul.eu/4C4KNA6b)
-![screenshot470](https://github.com/user-attachments/assets/1d8023d6-3610-480c-b265-0aa55396e2db)
+# [- # scramzi personal 3](https://scramzi.s-ul.eu/8bboU40y)
+![screenshot477](https://github.com/user-attachments/assets/9e3c6e61-a2fb-4dcf-b458-5fe77affda3c)
 
-# [- # scramzi new personal](https://scramzi.s-ul.eu/Pfln7uus)
+# [- # scramzi personal 2](https://scramzi.s-ul.eu/Pfln7uus)
 ![screenshot438](https://github.com/user-attachments/assets/10bb143c-8432-409b-9e76-f605874baf9e)
 
 # [- # scramzi personal](https://drive.google.com/file/d/1jXMZyjA0J4AR3L50OPxVUnEsb0TN8s58/view?usp=sharing)
 ![screenshot422](https://github.com/Scramzi/skins/assets/107284378/7b733538-13bf-47d1-ab7e-f3e2184b2a11)
+
+# [superdedogeiga](https://scramzi.s-ul.eu/4C4KNA6b)
+![screenshot470](https://github.com/user-attachments/assets/1d8023d6-3610-480c-b265-0aa55396e2db)
 
 # [montevideo](https://drive.google.com/file/d/1Acb8p_wSjwxtKLJfrvyqHU4sn5bkDD7k/view?usp=sharing)
 ![screenshot435](https://github.com/user-attachments/assets/622ca6b3-589a-40eb-a696-4a9154941aed)
@@ -42,9 +45,6 @@
 
 # [TrailMix Aristia](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
 ![imagen](https://github.com/Scramzi/skins/assets/107284378/ef82b912-4b10-44bf-840d-d2e214ac2805)
-
-# [Seoul_v11_Asta_Edit (enri discord)](https://cdn.discordapp.com/attachments/1173596051610017802/1206556401162526730/-_Seoul_v11_Asta_Edit.osk?ex=65eee536&is=65dc7036&hm=202d5dad449ddb552d09c645499424d1de0bd03a8a79b540870eebcd0d527a96&)
-![imagen](https://cdn.discordapp.com/attachments/1173596051610017802/1206556497971118080/image.png?ex=65eee54d&is=65dc704d&hm=50ce330bb6dc710de214d443a6e193c9f6108d84828218b0dfda54a3779d64e3&)
 
 # [vv](https://drive.google.com/file/d/1DndjvBtgbVVz10903vUcp-N9nUyqG0sx/view?usp=drive_link)
 ![screenshot382](https://github.com/Scramzi/skins/assets/107284378/d1113381-3906-45f2-8bf5-e70038213e2c)
