@@ -1,5 +1,9 @@
 # [Scramzi](https://osu.ppy.sh/users/6425836) skins, most skins are optimized.
 # check [tekkito](https://osu.ppy.sh/users/7075211) edits click [here](https://github.com/Scramzi/skins/blob/main/tekkito.md) 
+# pls check [Alyra's Uruguay skinhub](https://github.com/alyrawr/skins-osu-amigos/blob/main/README.md)!!!
+
+# [- # scramzi personal 5 (both clients)](https://scramzi.s-ul.eu/XrLbqfiP)
+<img width="1920" height="1080" alt="osu_2026-10-02_16-58-19" src="https://github.com/user-attachments/assets/a7cf2d73-5973-4dcb-89a8-56b42399c897" />
 
 # [- # scramzi personal 4 (both clients)](https://scramzi.s-ul.eu/CmWgrj7l)
 ![osu_2026-03-29_16-31-15](https://github.com/user-attachments/assets/e8b608e9-080b-4b8a-afe6-f23976a4ed40)
@@ -12,6 +16,9 @@
 
 # [- # scramzi personal](https://drive.google.com/file/d/1jXMZyjA0J4AR3L50OPxVUnEsb0TN8s58/view?usp=sharing)
 ![screenshot422](https://github.com/Scramzi/skins/assets/107284378/7b733538-13bf-47d1-ab7e-f3e2184b2a11)
+
+# [superdedogeiga normal (both clients)](https://scramzi.s-ul.eu/ZYCOmMV8)
+<img width="1920" height="1080" alt="osu_2026-10-02_18-59-30" src="https://github.com/user-attachments/assets/c63a4c65-dec5-48ea-9f65-97f374350662" />
 
 # [superdedogeiga stacked](https://scramzi.s-ul.eu/4C4KNA6b)
 ![screenshot470](https://github.com/user-attachments/assets/1d8023d6-3610-480c-b265-0aa55396e2db)
