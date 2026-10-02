@@ -13,7 +13,7 @@
 # [- # scramzi personal](https://drive.google.com/file/d/1jXMZyjA0J4AR3L50OPxVUnEsb0TN8s58/view?usp=sharing)
 ![screenshot422](https://github.com/Scramzi/skins/assets/107284378/7b733538-13bf-47d1-ab7e-f3e2184b2a11)
 
-# [superdedogeiga](https://scramzi.s-ul.eu/4C4KNA6b)
+# [superdedogeiga stacked](https://scramzi.s-ul.eu/4C4KNA6b)
 ![screenshot470](https://github.com/user-attachments/assets/1d8023d6-3610-480c-b265-0aa55396e2db)
 
 # [montevideo](https://drive.google.com/file/d/1Acb8p_wSjwxtKLJfrvyqHU4sn5bkDD7k/view?usp=sharing)
